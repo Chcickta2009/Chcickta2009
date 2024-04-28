@@ -3,7 +3,7 @@
 - 🌱  I am currently studying to become a film animation technician.
 - 💞️ I am looking for cooperation in the field of fim editing, inspiration for drawing and self-development in general. 
 - 📫 I can be contacted via FB (https://www.facebook.com/Chickita2009), Youtube (https://www.youtube.com/channel/UCRMdMETmzXkijytu0l3pIQQ) and Email (pele32.kw@gmail.com).
-- 😄 Pronouns: She/he
+- 😄 Pronouns: She/her
 - ⚡ Fun fact: I love chocolate, Spaghetti, a good movie, some trip to other countries.
 
 <!---
